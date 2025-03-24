@@ -54,5 +54,5 @@ For any queries, feel free to reach out:
 <br>
 Email: pranitvirkar.146@gmail.com
 <br>
-GitHub: 
+GitHub: Pranit Virkar
 <br>
